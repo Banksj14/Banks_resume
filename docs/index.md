@@ -27,7 +27,6 @@ __Brigham Young University - Idaho__, Rexburg, ID
 
 `February 2019 - Present`
 __NorthPoint Apartments__, Rexburg, ID
-Assistant Office Manager
 
 - Manage over 1000 tenants by assisting with individual needs and concerns
 - Review and audit thousands of tenant accounts to balance financial discrepancies
@@ -50,7 +49,6 @@ __KPMG US LLP__, Minneapolis, MN
 
 `2017 - 2019`
 __Service Missionary__, Argentina
-Full Time Volunteer Representative/ Spanish Speaking
 
 - Averaged between 100 - 115 hours of volunteer work per week
 - Counseled thousands of individuals to a better way of life by overcoming addictions and bad habits
